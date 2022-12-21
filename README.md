@@ -6,3 +6,6 @@ This list was compiled from many different sources that had compiled their own m
 This list is the result of that filtering and scanning. All 10,063,833 of them.
 
 Use this for good!
+
+I should just warn you that some of the sites may fall under adult content or even content that you and I may not like or agree with. We are not the content makers or owners, this list is JUST domain names, what you find is up to you. Feel free to censor or filter domains as you see fit. We take no liability for you visiting sites you should not.
+
